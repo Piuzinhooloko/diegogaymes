@@ -1,0 +1,2 @@
+# diegogaymes
+só os gaymes
